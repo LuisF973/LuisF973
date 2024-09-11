@@ -5,7 +5,7 @@
 
 - 🌱 Atualmente estou aprendendo **curso de desenvolvimento de sistemas**
 
-- 📫 Como chegar até mim **luisfelipe.kmrodrigues@gmail.com**
+- 📫 Como chegar até mim **luisfelipe.k.m.gitrodrigues@gmail.com**
 
 - 🏆 conheça minhas experiências [https://www.credly.com/users/luis-felipe.75b9f5bf](https://www.credly.com/users/luis-felipe.75b9f5bf)
 
